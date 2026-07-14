@@ -53,7 +53,9 @@ Professionally managed technology services create a resilient IT environment tha
 
 ### Transform Your Business Technology with J3K Technologies
 
-Whether your organization requires managed cloud services atlanta Georgia (GA), expert business technology consulting atlanta Georgia (GA), dependable network operations support atlanta Georgia (GA), professional it infrastructure consulting atlanta Georgia (GA), or comprehensive computer network management atlanta Georgia (GA), J3K Technologies delivers customized IT solutions designed to improve performance, strengthen security, and support sustainable business growth. Invest in reliable technology services that keep your business connected, productive, and prepared for the future.
+Whether your organization requires managed cloud services atlanta Georgia (GA), expert business technology consulting atlanta Georgia (GA), dependable network operations support atlanta Georgia (GA), professional it infrastructure consulting atlanta Georgia (GA), or comprehensive computer network management atlanta Georgia (GA).
+
+J3K Technologies delivers customized IT solutions designed to improve performance, strengthen security, and support sustainable business growth. Invest in reliable technology services that keep your business connected, productive, and prepared for the future.
 
 ## Services We Offer
 
